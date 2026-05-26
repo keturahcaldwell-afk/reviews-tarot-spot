@@ -1,0 +1,1 @@
+# reviews-tarot-spot
